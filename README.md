@@ -5,7 +5,7 @@
 *****
 
 # INFORMATION
-- (MP3 and MOD FILES) MP3 only: https://mega.nz/fm/7j4RiCaJ
+- (MP3 files) https://mega.nz/fm/7j4RiCaJ
 
 *****
 # Find me on...
