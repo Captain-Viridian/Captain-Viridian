@@ -1,6 +1,6 @@
 = = = Viridian's Chiptune Library = = =
 
-!!! Please message me if you are the original musician of any piece I've uploaded on here and would like it removed. !!!
+!!! Please message me if you are the original musician of any piece I've uploaded on here and would like it removed !!!
 
 *****
 
